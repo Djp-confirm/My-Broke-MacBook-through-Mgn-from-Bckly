@@ -1,1 +1,0 @@
-# My-Broke-MacBook-through-Mgn-from-Bckly
